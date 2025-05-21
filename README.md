@@ -24,5 +24,5 @@
 
 📬 **Let's Connect**  
 - [LinkedIn](https://linkedin.com/in/kunalgehlot2626)  
-- [Medium](https://medium.com/@yourmedium)  
+- [Medium](https://medium.com/@gehlotkunal26)  
 
